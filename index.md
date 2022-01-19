@@ -1,4 +1,4 @@
-## Boas Vindas a Lojinha da Maitê
+## Boas Vindas à Lojinha da Maitê
 
 Ainda não temos um site, mas você pode falar conosco por outros canais.
 
